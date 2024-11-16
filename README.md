@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @muhammadtouseef112
+- 👋 Hi, I’m Muhammad Touseef
 - 👀 I’m interested in Designing responsive website
 - 🌱 I’m currently learning web development from SMIT
 - 💞️ I’m looking to collaborate on ...
