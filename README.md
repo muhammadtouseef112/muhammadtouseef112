@@ -2,7 +2,7 @@
 - 👀 I’m interested in Designing responsive website
 - 🌱 I’m currently learning web development from SMIT
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me immuhammadtouseef@gmail.com, phone no : 03410895503
+- 📫 How to reach me touseef75982@gmail.com, phone no : 03410895503
 - 😄 Pronouns: ...
 - ⚡ Fun fact: i intrusted in playing cricket
 
